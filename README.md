@@ -1,2 +1,2 @@
 # tugasku
-memek
+belajar 
