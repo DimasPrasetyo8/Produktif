@@ -1,2 +1,2 @@
 # tugasku
-belajar 
+yesus💖💖
