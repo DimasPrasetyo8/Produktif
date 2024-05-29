@@ -1,2 +1,4 @@
 # tugasku
-roby dan nuna
+Nama :Dimas Prasetyo 
+Absen :8 
+Kelas:X RPL 3 
